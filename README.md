@@ -6,6 +6,7 @@
 
 Email: aya.marzouqq@gmail.com
 LinkedIn: Aya Mohamed
+https://www.linkedin.com/in/aya-mohamed-40852a146/?trk=public-profile-join-page
 Phone: +201123790653
 I welcome discussions on potential projects, questions about my work, or any opportunities to collaborate on initiatives focused on environmental sustainability and AI.
 
